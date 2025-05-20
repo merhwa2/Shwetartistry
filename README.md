@@ -58,7 +58,6 @@ Our roots lie deep in the heart of Lucknow, where generations have preserved the
 DM us on [WhatsApp](https://wa.me/919005517090) or use the contact form on our website. We’re happy to help you design your perfect outfit.
 
 ---
+Annual Report 2024-25 (https://www.slideshare.net/slideshow/this-slideshare-is-a-comprehensive-visual-story-of-shwet-a-women-led-artisan-initiative-breathing-new-life-into-india-s-ancient-chikankari-embroidery-tradition/279413102)
 
-### 📌 Keywords Targeted:
-`custom chikankari kurtis`, `bridal lehenga online`, `handcrafted wedding outfits`, `made to order ethnic wear`, `artisan sarees India`, `custom accessories handmade`, `shwet artistry fashion`
 
